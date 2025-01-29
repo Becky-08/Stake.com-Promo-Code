@@ -1,4 +1,4 @@
-#**Stake.com Promo Code 2025 – Use Code “HELLA200” and Get 200% Welcome or Deposit Bonus up to $3000**
+# **Stake.com Promo Code 2025 – Use Code “HELLA200” and Get 200% Welcome or Deposit Bonus up to $3000**
 
 Unlock incredible rewards at Stake.com with the exclusive promo code **"**[**HELLA200**](https://stake.com/?offer=hella200&c=7896e10434)**"**. Use this code in 2025 to claim a **200% Welcome or Deposit Bonus** up to $3,000 and kickstart your gaming journey with a massive boost. Stake.com, one of the leading online crypto betting platforms, offers a wide range of bonuses, VIP perks, and promotions tailored for players worldwide.
 
